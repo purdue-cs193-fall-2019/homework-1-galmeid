@@ -4,3 +4,4 @@
 
 - The memes are bomb
 - The clicker quizzes are nice too
+- The TAs
